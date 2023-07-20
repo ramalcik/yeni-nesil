@@ -10,5 +10,6 @@ Başka Açıklamaya Gerek Yok Bence ve size şunu diyim gidipde birisnin ss ald�
 
 FULL SİNEK DEVELOPERLERE SELAM OLSUN BURDA ✌
 
+ünlü olmaya çalışan kızın dcsi luisa1111
 
 `Repodaki Aşklarım: takachidev papazchavo darkdayscim`
